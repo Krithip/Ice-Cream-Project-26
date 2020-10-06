@@ -1,0 +1,1 @@
+The recipe is how to make your own ice cream at home without buying it outside. It is a very simple recipe that can easily be done.
